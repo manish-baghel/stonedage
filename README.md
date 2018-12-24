@@ -1,1 +1,1 @@
-# stonedage
+# Stoned Age Cafe & Inn
